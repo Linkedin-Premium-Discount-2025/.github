@@ -1,4 +1,4 @@
-# LinkedIn Premium Discount 2025 | 60% Off for everyone and not just for students!
+# LinkedIn Premium Discount 2025 | 60% Off for Everyone (12 Months)
 
 LinkedIn Premium is a powerful tool for professionals, offering enhanced networking, learning, and job-seeking opportunities. However, the cost can add up quickly. This guide explores LinkedIn Premium’s pricing plans and all the ways you can access discounts to maximize value without breaking the bank.
 
